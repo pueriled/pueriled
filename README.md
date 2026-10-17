@@ -1,6 +1,6 @@
 <img src="https://64.media.tumblr.com/8e2fda8c39b409559d4bd19e9983074d/de8ad09b2dfb195b-77/s250x400/f76ced036d5fd640d24298e7b9e543860a078210.gifv" width="260px"/>
 
-caroline anything on here https://pronouns.cc/@valley
+caroline https://pronouns.cc/@valley
 
 she/her irl catgirl obsessed with ganyu
 
