@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/8e2fda8c39b409559d4bd19e9983074d/de8ad09b2dfb195b-77/s250x400/f76ced036d5fd640d24298e7b9e543860a078210.gifv" width="260px"/>
+<img src="https://64.media.tumblr.com/c1cb3c5d9ef5ba74f713cab4c75d6161/b1701af0a1435f1a-db/s400x600/5af908063faefd0704d18ecfa53b38d505c56288.pnj" width="270px"/>
 
 caroline https://pronouns.cc/@valley
 
@@ -12,4 +12,4 @@ make fun of me too i dont care
 
 ill add stuff here later
 
-<img src="https://64.media.tumblr.com/c05a772c64dc285d1ec819cbd431397a/260ec5af173f7181-63/s500x750/86c588f6b2a4148aa433fbe5d1df36818b57f3dd.gifv" width="160px"/>
+<img src="https://64.media.tumblr.com/80cff9ce6aff53fd34b1ef48f7aae883/b1701af0a1435f1a-aa/s1280x1920/fa6888de99fb1679a1eb22686cdaa5a3047932f3.pnj" width="160px"/>
