@@ -12,4 +12,4 @@ make fun of me too i dont care
 
 ill add stuff here later
 
-<img src="https://64.media.tumblr.com/80cff9ce6aff53fd34b1ef48f7aae883/b1701af0a1435f1a-aa/s1280x1920/fa6888de99fb1679a1eb22686cdaa5a3047932f3.pnj" width="160px"/>
+<img src="https://i.postimg.cc/RFPPRvf4/db1v6sh-558e814b-4af9-4f1b-b9c3-9c80701ca88c.png" width="270px"/>
