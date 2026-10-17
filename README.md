@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/2729b3de8dc57a6e845bffabb1e5a503/260ec5af173f7181-a3/s500x750/40a6238853c59e8884602bcf0cc4aaa23d72b7bd.gifv" width="160px"/>
+<img src="https://64.media.tumblr.com/8e2fda8c39b409559d4bd19e9983074d/de8ad09b2dfb195b-77/s250x400/f76ced036d5fd640d24298e7b9e543860a078210.gifv" width="260px"/>
 
 caroline or marie or anything listed on here https://pronouns.cc/@valley
 
